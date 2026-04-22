@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUID900427HQRRMR06
+CUID900427HQRRMR06
